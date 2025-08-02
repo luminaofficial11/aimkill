@@ -1,2 +1,0 @@
-# aimkill
-asdad
